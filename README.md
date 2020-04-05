@@ -7,4 +7,4 @@
 
 
 ```
-![Screenshot:](https://i.ibb.co/Pz7dmpL/Screenshot.png)
+![Screenshot:](https://i.ibb.co/dPY5DsV/Screenshot.png)
